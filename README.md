@@ -11,4 +11,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: I don't know what to type here
--->my insta: strdavidt
+-->mi instagram: strdavidt
